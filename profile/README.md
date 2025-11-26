@@ -36,6 +36,8 @@ The method is simple, which explains the trend’s viral success:
 
 In seconds, the AI produces a completely new image based on the user’s face and the prompt’s artistic description.
 
+👉 **For Daily AI News Visit:** https://www.aiinfozone.in/
+
 ---
 
 ## **The Viral Styles Dominating Social Feeds**
@@ -81,6 +83,8 @@ It’s not an app but a collection of text prompts and techniques created by Anu
 
 ### **Which AI tool is used most?**
 Mostly **Google Gemini**, but the prompts also work on tools like **Microsoft Copilot**.
+
+👉 **For Daily AI News Visit:** https://www.aiinfozone.in/
 
 ### **How to try the trend?**
 - Visit **anupsagar.com** or YouTube  
