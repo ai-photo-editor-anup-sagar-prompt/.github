@@ -1,6 +1,6 @@
 # **Anup Sagar's AI Photo Editor Sparks Wild New Trend: See The Mind-Blowing Transformations!**
 
-👉 **For Daily AI News Visit:** https://www.aiinfozone.in/
+👉 **For Daily AI News Visit:** https://www.aiinfozone.in/ 
 
 A new phenomenon is sweeping across social media, turning everyday selfies into hyper-realistic, stunning works of art with just a few clicks. The source of this viral craze isn't a new app or a complex piece of software, but rather the innovative techniques of a content creator named **Anup Sagar**.
 
